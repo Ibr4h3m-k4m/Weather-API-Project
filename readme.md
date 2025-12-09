@@ -128,10 +128,3 @@ Ibr4h3m-k4m
 
 Last Updated: December 2025
 
-
-Copy the code above and paste it into your `readme.md` file. The formatting is complete and ready to use!Copy the code above and paste it into your `readme.md` file. The formatting is complete and ready to use!
-Claude Haiku 4.5 • 1x
-
-
-
-Copy the code above and paste it into your `readme.md` file. The formatting is complete and ready to use!Copy the code above and paste it into your `readme.md` file. The formatting is complete and ready to use!
